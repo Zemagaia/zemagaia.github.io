@@ -1,2 +1,7 @@
 # zemagaia.github.io
-Lynx is gay lol
+
+Just hosting Spectral Realms' client on my GitHub because download clients is bullshit
+
+#Spectral Realms best private server
+
+#Lynx is gay btw
