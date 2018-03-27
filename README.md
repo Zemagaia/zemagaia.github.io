@@ -1,3 +1,0 @@
-# zemagaia.github.io
-
-OK
